@@ -1,0 +1,1 @@
+cnc2417 Z axis 52mm spindle mount holder by Clausevic on Thingiverse: https://www.thingiverse.com/thing:2596113
